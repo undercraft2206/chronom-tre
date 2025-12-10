@@ -1,1 +1,1 @@
-# chronomètre
+# chronom-tre (what the hell, i didn't know how to use keyboard lol)
